@@ -23,7 +23,7 @@
 
 ## XX. Offroad Parks & Public Trails
 - [RiderPlanet USA - Motorcycle & ATV Trails Database](https://www.riderplanet-usa.com)
-- 
+  
 ### NY
 
 ### PA
