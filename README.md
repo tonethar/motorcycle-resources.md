@@ -14,7 +14,7 @@
 
 ### Message Boards
 - [Find your tribe: The ultimate guide to motorcycle forums and communities](https://www.kineticmotorcycles.com/blog/2025/3/2/find-your-tribe-the-ultimate-guide-to-motorcycle-forums-and-communities)
-- [Top 40 Motorcycle Forums in 2025(]https://forums.feedspot.com/motorcycle_forums)
+- [Top 40 Motorcycle Forums in 2025](https://forums.feedspot.com/motorcycle_forums)
 - [20 Best Motorcycle Forums to Visit](https://powersportsguide.com/best-motorcycle-forums)
 - I use:
   - https://www.triumph400forum.com/
