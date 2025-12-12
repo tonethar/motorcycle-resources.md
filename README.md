@@ -16,6 +16,7 @@
 - https://www.triumph400forum.com/
 - https://www.tw200forum.com/
 - https://forums.feedspot.com/motorcycle_forums/ - 40 more motorcycle forums
+- https://powersportsguide.com/best-motorcycle-forums/ - 20 "best motorcycle forums"
 
 
 ## XX. Offroad Parks & Public Trails
