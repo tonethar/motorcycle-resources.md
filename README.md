@@ -17,8 +17,14 @@
 ### NY
 
 ### PA
-- https://patrailriders.org/7-mountains-dual-sport/
 
+
+## XX. Events
+### AZ
+- https://coconinotrailriders.org/events/2025-race/
+
+### PA
+- https://patrailriders.org/7-mountains-dual-sport/
 
 ## XX. Transporting your bike
 
