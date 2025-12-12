@@ -3,6 +3,7 @@
 ## XX. Training
 
 ### Getting Started
+- https://msf-usa.org/ - search for a *Basic RiderCourse* near your location
 
 ### Beyond the basics
 
