@@ -13,13 +13,17 @@
 ### Facebook Groups
 
 ### Message Boards
-- https://www.triumph400forum.com/
-- https://www.tw200forum.com/
-- https://forums.feedspot.com/motorcycle_forums/ - 40 more motorcycle forums
-- https://powersportsguide.com/best-motorcycle-forums/ - 20 "best motorcycle forums"
+- [Find your tribe: The ultimate guide to motorcycle forums and communities](https://www.kineticmotorcycles.com/blog/2025/3/2/find-your-tribe-the-ultimate-guide-to-motorcycle-forums-and-communities)
+- [Top 40 Motorcycle Forums in 2025(]https://forums.feedspot.com/motorcycle_forums)
+- [20 Best Motorcycle Forums to Visit](https://powersportsguide.com/best-motorcycle-forums)
+- I use:
+  - https://www.triumph400forum.com/
+  - https://www.tw200forum.com/
 
 
 ## XX. Offroad Parks & Public Trails
+- [RiderPlanet USA - Motorcycle & ATV Trails Database](https://www.riderplanet-usa.com)
+- 
 ### NY
 
 ### PA
