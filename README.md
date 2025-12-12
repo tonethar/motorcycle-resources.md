@@ -13,6 +13,9 @@
 ### Facebook Groups
 
 ### Message Boards
+- https://www.triumph400forum.com/
+- https://www.tw200forum.com/
+
 
 ## XX. Offroad Parks & Public Trails
 ### NY
