@@ -25,6 +25,7 @@
 - [RiderPlanet USA - Motorcycle & ATV Trails Database](https://www.riderplanet-usa.com)
   
 ### NY
+- [Lewis County OHV Trail Permits](https://lewiscountyny.gov/departments/recreation-forestry-and-parks/ohv-trail-permits/)
 
 ### PA
 - [Bald Eagle State Forest](https://www.pa.gov/agencies/dcnr/recreation/where-to-go/state-forests/find-a-forest/bald-eagle/atv-riding)
