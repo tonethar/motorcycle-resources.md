@@ -52,7 +52,7 @@
 
 ## XX. Motorcycle Manufacturers
 
-## XX. Stores
+## XX. Buy Gear
 
 ## XX. BDRs
 
